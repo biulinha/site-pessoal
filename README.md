@@ -1,1 +1,2 @@
-# site-pessoal
+# Eu sou estudante do ensino médio, me chamo fabiola do nascimento raymundo e tenho 19 anos.
+ Estou na série 2B matutino. Trabalho como balconista em uma padaria e futuramente pretendo ter uma loja de roupas.
